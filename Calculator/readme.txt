@@ -1,3 +1,0 @@
-Team Members:
-
-Dryan Ocana
